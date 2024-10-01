@@ -1,1 +1,1 @@
-work ın progress   01.10.2024
+work in progress   01.10.2024
